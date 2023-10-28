@@ -1,1 +1,1 @@
-readme!A
+korehadekinai
